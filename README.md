@@ -8,6 +8,7 @@
     Tumblr - https://meedajoe0417.tumblr.com/
     YouTube - https://youtube.com/channel/UCCxRLh-X17nSW7P5cQGNRNQ
     Discord - https://discord.gg/AYEAK5RmFR
+    Rumble Video - https://rumble.com/c/c-925547
     
 
 <!---
