@@ -5,9 +5,7 @@
 - I’ll be posting all coding scripts for all tutorials from blog posts and YouTube videos.
 - Reach me through all my different Socials:
     
-    Twitter - https://mobile.twitter.com/vigmu2
-    
-    Tumblr - https://meedajoe0417.tumblr.com/
+    X - https://mobile.x.com/vigmu2
     
     YouTube - https://youtube.com/channel/UCCxRLh-X17nSW7P5cQGNRNQ
     
